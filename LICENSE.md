@@ -1,4 +1,4 @@
-#  
+#  new anime card clash Scripts is the best anime card clash Script, featuring auto-sell and teleport. Safe and powerful for all your needs.
 
 
 
